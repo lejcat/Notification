@@ -1,4 +1,4 @@
-# VRC Avatar Commisson Notifications (@fkdlzkeldk)
+# VRC Avatar Commisson Notifications
 
 ※ 방송용 아바타의 경우 __상업 이용이 허가된 모델__ 인지 확인해주세요.<br>
 ※ __R18(NSFW), 문신, 타투 등 작업하지 않습니다.__<br>
